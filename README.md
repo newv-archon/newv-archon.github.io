@@ -1,1 +1,1 @@
-# newv-archon.github.io
+# 가온 (GRI, Gaon Research Institute)
